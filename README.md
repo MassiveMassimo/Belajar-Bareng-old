@@ -10,8 +10,8 @@
 2. Dimas Ilham Danesamarruf (2006596011)
 3. Fikriaffan Fadlil (2006535426)
 4. Jenny (2006596516)
-5. Rafa Aurielle Adinda Diorra (2006596945)
-6. Muhammad Hannan Massimo Madjid (2006597102)
+5. Muhammad Hannan Massimo Madjid (2006597102)
+6. Rafa Aurielle Adinda Diorra (2006596945)
 7. Zachra Shafira Ramadhanty (2006597033)
 
 <p>&nbsp;</p>
